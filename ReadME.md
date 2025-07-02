@@ -1,7 +1,9 @@
-I'm appealling if they can give me more days to cover up.
+My postman Documentation is not yet ready because,
 
-I don't want to be a copy-paste type without fully understanding
-of a concept.
+I don't want to do copy-paste of what i don't have an 
 
-I could not finish my documentation, that was why i could not 
-upload it here.
+understanding of it.
+
+
+So, I'm appealling if they can give me more days to cover up.
+
